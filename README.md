@@ -1,3 +1,3 @@
 
-📫 Contact me: thao.duong1812@gmail.com
+📫 Contact me: thao.duong1218@gmail.com
 
